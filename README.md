@@ -23,9 +23,6 @@
 ![d9sd2kw-47693ded-2198-4c67-8d11-37efcf79010a](https://github.com/izumisenalover/izumisenalover/assets/129478709/8802c263-1bae-4367-b2da-39177674ccf8)
 
 
-pfp by EroMkk on twt ^_^ ![Untitled](https://github.com/izumisenalover/izumisenalover/assets/129478709/78fa63af-97ac-4108-94e4-62c036e1d431)
-
-  ![akechi-lesbian-akechi](https://github.com/user-attachments/assets/2f16fbaf-dca9-4ec6-8241-f112c19467f8) 
 
 
 
